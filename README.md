@@ -1,0 +1,1 @@
+# Khadamaty-Privacy-Policy
